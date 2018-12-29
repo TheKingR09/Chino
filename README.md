@@ -1,2 +1,2 @@
-# Chino
-Original as you see
+# Script nich hhehe
+id: line.me/ti/p/~tkr.69
